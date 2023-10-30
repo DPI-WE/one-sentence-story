@@ -1,5 +1,4 @@
 
-
 In a world of monsters, one man holds the key.
 
 This man was a simple gardener, who found the key while plowing his fields.  
@@ -14,4 +13,7 @@ He lands in the world without tacos. Devastated he traveled far and wide for the
 
 He falls terribly ill from eating mushrooms. 
 Place holder text. Waltz, bad nymph, for quick jigs vex. Glib jocks quiz nymph to vex dwarf. Sphinx of black quartz, judge my vow. How quickly daft jumping zebras vex!
->>>>>>> ebe942877979c6b82222e4a7949df7676aa8ed40
+This man was a simple gardener, who found the key while plowing his fields.  The key is blue and opens all the doors in the castle. 
+ Place holder text. The quick brown fox jumps over the lazy dog
+Now, he alone must journey to discover the secrets of the universe.  And unfortunately, that man must travel through a vortex.
+
