@@ -10,5 +10,9 @@ The key is blue and opens only one door in the castle. The castle belonged to th
 
 Now, he alone must journey to discover the secrets of the universe.  And unfortunately, that man must travel through a vortex.
 
+
+While he traveled through the vortex, he encountered the giant penguin who wields daggers.
+
+
 He lands in the world without tacos.
 

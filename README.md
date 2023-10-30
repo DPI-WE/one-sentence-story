@@ -8,3 +8,4 @@ Clone this repository (or open in codespace), create a branch with your initials
 ## Stories
 
 - [In a world](./in-a-world.md)
+- [In a new world](./in-a-new-world.md)
