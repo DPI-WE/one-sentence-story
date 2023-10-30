@@ -6,3 +6,6 @@ This man was a simple gardener, who found the key while plowing his fields.  The
 Now, he alone must journey to discover the secrets of the universe.  And unfortunately, that man must travel through a vortex.
 
 While he traveled through the vortex, he encountered the giant penguin who wields daggers.
+
+He lands in the world without tacos.
+
