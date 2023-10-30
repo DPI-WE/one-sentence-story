@@ -1,3 +1,4 @@
+In a world of monsters, one man holds the key. But the door is not locked!
 
 In a world of monsters, one man holds the key.
 
@@ -12,3 +13,6 @@ While he traveled through the vortex, he encountered the giant penguin who wield
 He lands in the world without tacos. Devastated he traveled far and wide for the best ingredients to create the ultimate taco.
 
 He falls terribly ill from eating mushrooms. 
+
+Despite his illness, he was determined to uncover the truth behind the Locke family's secret, pushing himself to unravel the mystery even in the throes of his sickness.
+
