@@ -12,3 +12,7 @@ While he traveled through the vortex, he encountered the giant penguin who wield
 He lands in the world without tacos. Devastated he traveled far and wide for the best ingredients to create the ultimate taco.
 
 He falls terribly ill from eating mushrooms. 
+Place holder text. Waltz, bad nymph, for quick jigs vex. Glib jocks quiz nymph to vex dwarf. Sphinx of black quartz, judge my vow. How quickly daft jumping zebras vex!
+This man was a simple gardener, who found the key while plowing his fields.  The key is blue and opens all the doors in the castle.
+Now, he alone must journey to discover the secrets of the universe.  And unfortunately, that man must travel through a vortex. A voice said from within the vortex "Glib jocks quiz nymph to vex dwarf. Sphinx of black quartz, judge my vow. Waltz, bad nymph, for quick jigs vex."
+
