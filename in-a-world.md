@@ -7,5 +7,5 @@ Now, he alone must journey to discover the secrets of the universe.  And unfortu
 
 While he traveled through the vortex, he encountered the giant penguin who wields daggers.
 
-He lands in the world without tacos.
+He lands in the world without tacos. Devastated he traveled far and wide for the best ingredients to create the ultimate taco.
 
