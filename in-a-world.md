@@ -1,1 +1,3 @@
-In a world of monsters, one man holds the key. And unfortunately, that man's key fell into a vortex.
+In a world of monsters, one man holds the key. But the door is not locked! He alone must journey to discover the secrets of the universe. And unfortunately, that man must travel through a vortex.
+
+
