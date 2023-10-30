@@ -10,3 +10,5 @@ The key is blue and opens only one door in the castle. The castle belonged to th
 
 Now, he alone must journey to discover the secrets of the universe.  And unfortunately, that man must travel through a vortex.
 
+He lands in the world without tacos.
+
