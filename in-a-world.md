@@ -1,1 +1,1 @@
-In a world of monsters, one man holds the key.
+In a world of monsters, one man holds the key. He alone must journey to discover the secrets of the universe.
