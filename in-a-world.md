@@ -15,3 +15,5 @@ He falls terribly ill from eating mushrooms.
 Despite his illness, he was determined to uncover the truth behind the Locke family's secret, pushing himself to unravel the mystery even in the throes of his sickness.
 
 After 10 years into his illness, he finally decided to go on a journey to find the best doctor and wizard in the world. That wizard's name was Hermione Granger.
+
+He propelled himself weakly back towards the vortex, clutching his stomach as it revolted violently against the mushrooms.
