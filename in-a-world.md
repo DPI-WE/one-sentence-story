@@ -14,3 +14,4 @@ He falls terribly ill from eating mushrooms.
 
 Despite his illness, he was determined to uncover the truth behind the Locke family's secret, pushing himself to unravel the mystery even in the throes of his sickness.
 
+He decided to go on a journey to find the best doctor and wizard in tbe world. 
