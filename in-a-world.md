@@ -14,3 +14,4 @@ He falls terribly ill from eating mushrooms.
 
 Despite his illness, he was determined to uncover the truth behind the Locke family's secret, pushing himself to unravel the mystery even in the throes of his sickness.
 
+He propelled himself weakly back towards the vortex, clutching his stomach as it revolted violently against the mushrooms.
