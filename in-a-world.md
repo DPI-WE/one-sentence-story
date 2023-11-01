@@ -18,3 +18,5 @@ After 10 years into his illness, he finally decided to go on a journey to find t
 
 He propelled himself weakly back towards the vortex, clutching his stomach as it revolted violently against the mushrooms.
 And that's when the mushroom people attacked!
+
+He nearly got squished to death by the mushroom people until Hermione suddenly showed up and blasted them all with her spell and turned them into harmless little roasted mushrooms.
