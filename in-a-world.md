@@ -20,3 +20,5 @@ He propelled himself weakly back towards the vortex, clutching his stomach as it
 And that's when the mushroom people attacked!
 
 He nearly got squished to death by the mushroom people until Hermione suddenly showed up and blasted them all with her spell and turned them into harmless little roasted mushrooms.
+
+And they lived happily ever after.
