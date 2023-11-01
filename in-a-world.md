@@ -17,3 +17,4 @@ Despite his illness, he was determined to uncover the truth behind the Locke fam
 After 10 years into his illness, he finally decided to go on a journey to find the best doctor and wizard in the world. That wizard's name was Hermione Granger.
 
 He propelled himself weakly back towards the vortex, clutching his stomach as it revolted violently against the mushrooms.
+And that's when the mushroom people attacked!
