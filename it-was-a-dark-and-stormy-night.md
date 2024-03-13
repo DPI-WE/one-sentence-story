@@ -1,1 +1,1 @@
-It was a dark and stormy night 
+It was a dark and stormy night. A dragon with her 3 new born children arrived at the mountain near the king's kingdom near Chicago.
