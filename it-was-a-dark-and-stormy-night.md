@@ -35,3 +35,5 @@ After 24 hours the potion wore off and they returned back to normal but the witc
 However, everything changed when the Fire Nation attacked and Fire Lord Raghu claimed, "The One Piece is real!"
 
 Entonces los dragones fueron a la nacion de Fuego and pregunto "que es el One Piece?".
+
+Fire Lord Raghu only answered, "You must travel to the Southern and Northern Water Tribes, as well as the Western and Eastern Air Temples to find out."
