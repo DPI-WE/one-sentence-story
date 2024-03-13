@@ -36,4 +36,4 @@ However, everything changed when the Fire Nation attacked and Fire Lord Raghu cl
 
 Entonces los dragones fueron a la nacion de Fuego and pregunto "que es el One Piece?".
 
-Fire Lord Raghu only answered, "You must travel to the Southern and Northern Water Tribes, as well as the Eastern and Western Air Temples to find out."
+Fire Lord Raghu only answered, "You must travel to the Southern and Northern Water Tribes, as well as the Western and Eastern Air Temples to find out."
