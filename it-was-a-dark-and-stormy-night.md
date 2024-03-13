@@ -30,5 +30,4 @@ They found a mysterious potion hidden in a forest and decided to drink it and th
 
 When they woke up they discovered they were tiny and eight-legged and hungry for flies - they had turned into spiders! 
 
-안녕 여러분~ Tjena allihopa~ 
 After 24 hours the potion wore off and they returned back to normal but the witch was still in hot pursuit so they decided to split up.  
