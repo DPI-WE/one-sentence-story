@@ -39,3 +39,5 @@ Entonces los dragones fueron a la nacion de Fuego and pregunto "que es el One Pi
 Fire Lord Raghu only answered, "You must travel to the Southern and Northern Water Tribes, as well as the Western and Eastern Air Temples to find out."
 
 So they set their path to the Water Tribes and the Air Temples in search of the glorious "One Piece"!
+
+Along their travels to the Water Tribes they found a large iceberg.
