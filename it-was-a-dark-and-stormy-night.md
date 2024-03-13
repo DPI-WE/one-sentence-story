@@ -41,3 +41,5 @@ Fire Lord Raghu only answered, "You must travel to the Southern and Northern Wat
 So they set their path to the Water Tribes and the Air Temples in search of the glorious "One Piece"!
 
 Along their travels to the Water Tribes they found a large iceberg.
+
+Using their fire-breath they melted the large iceberg and discovered something incredible.
