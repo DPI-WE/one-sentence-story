@@ -43,3 +43,5 @@ So they set their path to the Water Tribes and the Air Temples in search of the 
 Along their travels to the Water Tribes they found a large iceberg.
 
 Using their fire-breath they melted the large iceberg and discovered something incredible.
+
+It was the Avatar! Back after 100 years to save them all from the witches sister. However, something was different about him...
