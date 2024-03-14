@@ -46,4 +46,6 @@ Using their fire-breath they melted the large iceberg and discovered something i
 
 It was the Avatar! Back after 100 years to save them all from the witches sister. However, something was different about him...
 
-The "One Piece" has corrupted the Avatar and instead of saving the dragons he begins to hunt them down. 
+The "One Piece" has corrupted the Avatar and instead of saving the dragons he begins to hunt them down.
+
+Eager to help, Caillou stopped being annoying for a sec and bloodbended all the dragons.
