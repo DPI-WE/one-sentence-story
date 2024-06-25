@@ -49,3 +49,5 @@ It was the Avatar! Back after 100 years to save them all from the witches sister
 The "One Piece" has corrupted the Avatar and instead of saving the dragons he begins to hunt them down.
 
 Eager to help, Caillou stopped being annoying for a sec and bloodbended all the dragons.
+
+But due to all the bloodbending magic the skies above started to shatter and different portals started to manifest.
