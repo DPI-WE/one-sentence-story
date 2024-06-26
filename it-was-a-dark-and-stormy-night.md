@@ -51,3 +51,5 @@ The "One Piece" has corrupted the Avatar and instead of saving the dragons he be
 Eager to help, Caillou stopped being annoying for a sec and bloodbended all the dragons.
 
 But due to all the bloodbending magic the skies above started to shatter and different portals started to manifest.
+
+From one of the portals emerged an ancient dragon sage who declared he could reverse the curse of the corrupted Avatar.
