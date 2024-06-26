@@ -14,3 +14,5 @@ Toad, covered in city grime but surprisingly upbeat, quips, "He's not here, but 
 Bowser proceeded to eat the shaved ice while mumbling something about Princess Peach having Bowser Jr. for the weekend.
 
 As Bowser savored the shaved ice, a distant roar echoed through the alleys, signaling the unexpected arrival of an old rival.
+
+Mario had eaten his own mutant shaved ice, giving him the ability to transform into a twenty foot tall shaved ice cone.
