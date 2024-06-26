@@ -10,3 +10,5 @@ Toad sees Bowser approaching and proceeds to open his domain.
 Bowser with an intense stare angrily says: "where is Mario!?"
 
 Toad, covered in city grime but surprisingly upbeat, quips, "He's not here, but he left you a shaved ice!"
+
+Bowser proceeded to eat the shaved ice while mumbling something about Princess Peach having Bowser Jr. for the weekend.
