@@ -3,6 +3,8 @@ This is the new world
 
 In a new world, something else was happening totally unrelated to the last one.
 
+In Mushroom Kingdom, a magical country filled with castles and floating blocks with question marks on them, we find a Mushroom person named Toad walking into a mysterious green pipe.
+
 Toad walked down the wrong pipe in the mushroom kingdom and crawled out of the dirty sewers of NYC.
 
 Toad sees Bowser approaching and proceeds to open his domain.
