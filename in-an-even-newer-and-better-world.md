@@ -10,3 +10,4 @@ For the very first time, the unheard-of silence was born.
 Luna was determined to bring the sound of music back.
 But in order to do so, Luna has to defeat the mayor and stop their plans.
 It wouldn't be easy, as the mayor subsidized and rolled out an aggressive anti-music marketing campaign.
+He also had a cruel wife who would meditate in silence all day long and forced the mayor to join her doing it for decades now. 
