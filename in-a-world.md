@@ -25,3 +25,6 @@ He nearly got squished to death by the mushroom people until Hermione suddenly s
 And they lived happily ever after.
 
 Until Taco Bell raised the price of the Cravings Box...
+
+
+With the natives completely addicted to tacos, they became slaves to Taco Bell.
