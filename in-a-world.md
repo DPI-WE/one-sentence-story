@@ -25,3 +25,5 @@ He nearly got squished to death by the mushroom people until Hermione suddenly s
 And they lived happily ever after.
 
 Until Taco Bell raised the price of the Cravings Box...
+
+However small a price increase might seem small to the people in charge only fueled a deep rage within the man. The greater world the man knew was changing without his say in the matter.
