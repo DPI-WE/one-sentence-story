@@ -26,5 +26,6 @@ And they lived happily ever after.
 
 Until Taco Bell raised the price of the Cravings Box...
 
-
 With the natives completely addicted to tacos, they became slaves to Taco Bell.
+
+However small a price increase might seem small to the people in charge only fueled a deep rage within the man. The greater world the man knew was changing without his say in the matter.
