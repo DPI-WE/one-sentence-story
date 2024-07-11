@@ -53,3 +53,5 @@ Eager to help, Caillou stopped being annoying for a sec and bloodbended all the 
 But due to all the bloodbending magic the skies above started to shatter and different portals started to manifest.
 
 From one of the portals emerged an ancient dragon sage who declared he could reverse the curse of the corrupted Avatar.
+
+The sage was curious of the ensuing chaos, but then a wild Charizard appeared! The sage used mystify, but it was uneffective!
